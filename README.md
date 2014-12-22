@@ -1,2 +1,5 @@
 Descar
+zxcvbnm,.
+wertyuiop
+asdfghjklñ
 ======
